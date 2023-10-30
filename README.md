@@ -17,10 +17,8 @@ Recipe for Jack's Semi-Famous Pumpkin Chocolate Chip Cookies
 
 2 teaspoon baking soda
 
-1 teaspoon cinnamon
-
 Chocolate chips
 
 Spoon cookie dough onto pan and sprinkle with salt
 
-Bake at 375 F for 11-12 minutes
+Bake at 375 F for 11 minutes
